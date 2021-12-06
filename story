@@ -6,3 +6,6 @@ When he was sleeping several monkeys came down the tree and pulled the cap selle
 They opened the bag and found the colourful caps inside. 
 The monkeys picked up the caps and climbed back up the trees. 
 The cap seller woke up after sometime and was surprised to find his opened bag and the monkeys all using his caps.
+
+The cap seller became very upset, he shouted at the monkeys in the tree. 
+The monkeys yelled back at him.
